@@ -1,0 +1,1 @@
+# prezentacia_zaverecnej_prace
